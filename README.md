@@ -10,4 +10,4 @@ Colégio Estadual Pedro Viriato Parigot de Souza
 
 ![](https://media1.tenor.com/m/IrIItfk0NLAAAAAC/student-stude.gif)
 
-![](https://tenor.com/view/crazy-mickey-gif-16004772172975950228)
+![](https://media1.tenor.com/m/3hxffpFJyZQAAAAC/crazy-mickey.gif)
