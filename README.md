@@ -6,7 +6,7 @@ Colégio Estadual Pedro Viriato Parigot de Souza
 **Telefone:**
 
 
-
+![](https://tenor.com/view/wikipedia-wiki-books-knowledge-pile-of-books-gif-24558380)
 
 ![](https://media1.tenor.com/m/IrIItfk0NLAAAAAC/student-stude.gif)
 
